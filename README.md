@@ -1,3 +1,5 @@
+<img width="975" height="650" alt="image" src="https://github.com/user-attachments/assets/895cd679-78d1-4432-8ae6-26aa06b33709" />
+
 ОУИТБ-ПИ01-23-2<br>
 Искандеров Сахил<br>
 Каражаков-Креймер Андрей<br>
